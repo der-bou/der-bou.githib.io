@@ -1,1 +1,1 @@
-This draft website contains only rubbish for practice purposes.
+This draft website contains only rubbish for practise purposes.
